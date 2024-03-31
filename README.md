@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **vishalsingh0500@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1wSjoCvmUqwKAzyHmTbfQm_Yjp7LapAUP/view?usp=sharing](https://drive.google.com/file/d/1wSjoCvmUqwKAzyHmTbfQm_Yjp7LapAUP/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1wSjoCvmUqwKAzyHmTbfQm_Yjp7LapAUP](Resume)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
